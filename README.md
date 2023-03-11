@@ -4,6 +4,6 @@ Alfredo Flores
 Olivia Butters
 Yunis Tamang
 
-epstein did not self delete
+epstein did not self delete.
 
 
